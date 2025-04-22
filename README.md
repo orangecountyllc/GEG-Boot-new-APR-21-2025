@@ -1,3 +1,4 @@
+updated apr 21, 2025
 
 For basic/ ops :  https://eqgpi.com/boardmembers_&_dealflow/
 
